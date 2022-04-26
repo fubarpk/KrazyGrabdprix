@@ -1,0 +1,4 @@
+# KrazyGrabdprix
+UploadedZipInitially
+downloadedrepositorypastfull
+recievedvariant
